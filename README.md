@@ -1,2 +1,2 @@
-i hope you're having a great day / night : )
+iwc ALWAYS. 16
 ![sun](https://i.imgur.com/G19QKId.gif)
