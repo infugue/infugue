@@ -1,2 +1,2 @@
-HE - HIM ♱ iwc always
+HIM ♱ iwc
 ![sun](https://i.imgur.com/G19QKId.gif)
