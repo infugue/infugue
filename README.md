@@ -1,1 +1,1 @@
-![n](https://i.imgur.com/jHti0IT.gif) < i have anxiety 24/7. i ♡ c+h
+![n](https://i.imgur.com/jHti0IT.gif) < i have anxiety most of the time sorry :(
