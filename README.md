@@ -1,1 +1,1 @@
-![n](https://i.imgur.com/jHti0IT.gif) < iwc , constant anxiety
+![n](https://i.imgur.com/jHti0IT.gif) < N , iwc — constant anxiety
