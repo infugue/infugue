@@ -1,1 +1,1 @@
-![n](https://i.imgur.com/jHti0IT.gif) < N - anxiety , iwc
+![n](https://i.imgur.com/jHti0IT.gif) < N - really bad anxiety , iwc
