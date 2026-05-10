@@ -2,4 +2,4 @@
 
  < N / S - iwc
 
-![](https://komarev.com/ghpvc/?username=infugue&color=red&label=da+goats)
+![](https://komarev.com/ghpvc/?username=infugue&color=red&label=^-^)
