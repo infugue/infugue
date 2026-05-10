@@ -1,5 +1,5 @@
 ![silver](https://i.imgur.com/Rmsr8Vx.gif)
 
- < n / s - 17 , iwc
+ < n / s - anxiety , iwc
 
-![](https://komarev.com/ghpvc/?username=infugue&color=red&label=awesome+people^-^)
+![](https://komarev.com/ghpvc/?username=infugue&color=red&label=♡)
