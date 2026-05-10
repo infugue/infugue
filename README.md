@@ -2,4 +2,4 @@
 
  < N / S - iwc
 
-![](https://komarev.com/ghpvc/?username=infugue&color=red&label=素晴らしい人々)
+![](https://komarev.com/ghpvc/?username=infugue&color=red&label=^-^)
