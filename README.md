@@ -2,4 +2,4 @@
 
  < N / S - anxiety , iwc
 
-![](https://komarev.com/ghpvc/?username=infugue&color=red&label=text^_^)
+![](https://komarev.com/ghpvc/?username=infugue&color=red&label=^_^)
