@@ -2,4 +2,4 @@
 
 ![silver](https://i.imgur.com/Rmsr8Vx.gif)
 
-n - iwc
+n / s - iwc
