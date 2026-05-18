@@ -1,7 +1,7 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=✧&abbreviated=true" />
 
-![silv](https://i.imgur.com/Rmsr8Vx.gif)
+![silver](https://i.imgur.com/rlenkLQ.jpeg)
 
 < N or S
 
