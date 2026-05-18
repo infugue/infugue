@@ -3,4 +3,4 @@
 
 ![silver](https://i.imgur.com/Rmsr8Vx.gif)
 
-  <a href="https://infugue.atabook.org/">ata</a>
+[ata](https://infugue.atabook.org/)&nbsp;&nbsp;. &nbsp;&nbsp;[rentry](https://rentry.co/hibisI)
