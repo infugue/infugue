@@ -3,4 +3,4 @@
 
 ![silver](https://i.imgur.com/Rmsr8Vx.gif)
 
-[atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
+[ATABOOK](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[RENTRY](https://rentry.co/followdaleader)
