@@ -3,4 +3,6 @@
 
 ![silver](https://i.imgur.com/Rmsr8Vx.gif)
 
+< N or S
+
 [ATABOOK](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[RENTRY](https://rentry.co/followdaleader)
