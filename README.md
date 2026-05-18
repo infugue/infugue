@@ -5,4 +5,4 @@
 
 < n or s , 17
 
-[atabook](https://infugue.atabook.org/)&nbsp;&nbsp;. &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
+[ata](https://infugue.atabook.org/)&nbsp;&nbsp;. &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
