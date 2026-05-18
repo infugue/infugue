@@ -3,6 +3,6 @@
 
 ![silver](https://i.imgur.com/Rmsr8Vx.gif)
 
-< N or S , c+h enc
+< N or S , c+h!
 
 [atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
