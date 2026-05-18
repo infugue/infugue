@@ -3,6 +3,6 @@
 
 ![silver](https://i.imgur.com/rlenkLQ.jpeg)
 
-< N / S , 17
+< N or S , 17
 
 [ata](https://infugue.atabook.org/)&nbsp;&nbsp;☆ &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
