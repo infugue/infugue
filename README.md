@@ -5,4 +5,9 @@
 
 < N or S
 
-[ATABOOK](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[RENTRY](https://rentry.co/followdaleader)
+<p align="center">
+  <sub>
+    <a href="https://infugue.atabook.org">ATABOOK</a>
+    <a href="https://rentry.co/followdaleader">RENTRY</a>
+  </sub>
+</p>
