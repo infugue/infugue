@@ -8,6 +8,6 @@
 <p align="center">
   <sub>
     <a href="https://infugue.atabook.org">ATABOOK</a>
-    <a href="https://rentry.co/followdaleader">RENTRY</a>
+    <a‎ ‎  href="https://rentry.co/followdaleader">RENTRY</a>
   </sub>
 </p>
