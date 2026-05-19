@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="![Views](https://komarev.com/ghpvc/?username=infugue&color=red&label=✧)" />
+  <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=✧&abbreviated=true" />
 
 ![silver](https://i.imgur.com/Rmsr8Vx.gif)
 
