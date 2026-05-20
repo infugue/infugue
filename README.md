@@ -5,4 +5,4 @@
 
 < N or S
 
-[<ins>atabook](https://infugue.atabook.org/) ⠀ ‎ ‎  ‎[<ins>rentry](https://rentry.co/followdaleader)
+[atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
