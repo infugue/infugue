@@ -3,7 +3,7 @@
 
 ![what](https://i.imgur.com/uXtb4ZW.jpeg)
 
-!@zoenaaaa(https://github.com/zoenaaaa) EXPOSED
+[@zoenaaaa](https://github.com/zoenaaaa) EXPOSED
 
 < N or S
 
