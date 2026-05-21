@@ -3,7 +3,7 @@
 
 ![what](https://i.imgur.com/uXtb4ZW.jpeg)
 
-@zoenaaaa exposed
+@zoenaaaa EXPOSED
 
 < N or S
 
