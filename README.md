@@ -5,6 +5,6 @@
 
 @zoenaaaa exposed
 
-< Call me N or S
+< N or S
 
 [ATABOOK](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[RENTRY](https://rentry.co/followdaleader)
