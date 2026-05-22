@@ -7,7 +7,7 @@
 
 ![scammer](https://i.imgur.com/9L1LTqO.jpeg)
 
-[@mutiIator](https://github.com/mutiIator) PT'S BIGGEST SCAMMER
+[@mutiIator](https://github.com/mutiIator) BIGGEST SCAMMER
 
 < N or S
 
