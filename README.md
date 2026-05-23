@@ -13,4 +13,4 @@
 
 < N or S
 
-[ATABOOK](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[RENTRY](https://rentry.co/followdaleader)
+[ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
