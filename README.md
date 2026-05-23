@@ -4,7 +4,6 @@
   <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=✧&abbreviated=true" />
 
 <img src="https://i.imgur.com/uXtb4ZW.jpeg" width="360px">  <br>
-
 <img src="https://i.imgur.com/xxwUGsV.jpeg" width="360px">  <br>
 
 
