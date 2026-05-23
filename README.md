@@ -1,11 +1,11 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=✧&abbreviated=true" />
 
-![IM CRYING](https://i.imgur.com/uXtb4ZW.jpeg)
+<img src="https://i.imgur.com/uXtb4ZW.jpeg" width="360px">  <br>
 
 [@zoenaaaa](https://github.com/zoenaaaa) EXPOSED
 
-![scammer](https://i.imgur.com/9L1LTqO.jpeg)
+<img src="https://i.imgur.com/9L1LTqO.jpeg" width="360px">  <br>
 
 [@mutiIator](https://github.com/mutiIator) PT'S BIGGEST SCAMMER
 
