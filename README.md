@@ -1,5 +1,7 @@
 <div align="center">
 
+[atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
+
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=✧&abbreviated=true" />
 
@@ -11,5 +13,3 @@
 <img src="https://i.imgur.com/NU9XdWU.jpeg" width="360px">  <br>
 
 [@mutiIator](https://github.com/mutiIator) PT'S BIGGEST SCAMMER
-
-[atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
