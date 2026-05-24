@@ -8,6 +8,7 @@
 [@zoenaaaa](https://github.com/zoenaaaa) EXPOSED
 
 <img src="https://i.imgur.com/9L1LTqO.jpeg" width="360px">  <br>
+<img src="https://i.imgur.com/NU9XdWU.jpeg" width="360px">  <br>
 
 [@mutiIator](https://github.com/mutiIator) PT'S BIGGEST SCAMMER
 
