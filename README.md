@@ -5,8 +5,6 @@
 
 <img src="https://i.imgur.com/l5a66jY.jpeg" width="360px">  <br>
 
-< N or S(pinel)
-
 [atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
 
 ——————————————————————————————————————————————
