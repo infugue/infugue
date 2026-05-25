@@ -12,4 +12,4 @@
 
 [@mutiIator](https://github.com/mutiIator) PT'S BIGGEST SCAMMER
 
-[新book](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
+[atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
