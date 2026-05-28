@@ -7,6 +7,8 @@
 
 [@zoenaaaa](https://github.com/zoenaaaa) EXPOSED
 
+06:02 PM[demon prodigy] THE NEGATIVE AURA
+
 <img src="https://i.imgur.com/9L1LTqO.jpeg" width="360px">  <br>
 <img src="https://i.imgur.com/NU9XdWU.jpeg" width="360px">  <br>
 
