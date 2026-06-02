@@ -18,8 +18,6 @@
 <img src="https://i.imgur.com/RpTpYdU.jpeg" width="360px">  <br>
 
 
-[@yubelsrevenge](https://github.com/yubelsrevenge) ALSO EXPOSED!!!!!!!!!!!
-
-[callout](https://rentry.co/yubeIsrevengecaIIout)
+[@yubelsrevenge](https://github.com/yubelsrevenge) ALSO EXPOSED!!!!!!!!!!! [callout](https://rentry.co/yubeIsrevengecaIIout)
 
 [新book](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/hibisiI)
