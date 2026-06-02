@@ -12,4 +12,8 @@
 
 [@mutiIator](https://github.com/mutiIator) PT'S BIGGEST SCAMMER
 
+<img src="https://i.imgur.com/OfklgO9.jpeg" width="360px">  <br>
+
+[@yubelsrevenge](https://github.com/yubelsrevenge) EXPOSED!!!!!!!!!!!
+
 [新book](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/followdaleader)
