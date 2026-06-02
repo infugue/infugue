@@ -15,7 +15,7 @@
 
 
 <img src="https://i.imgur.com/OfklgO9.jpeg" width="360px">  <br>
-<img src="https://i.imgur.com/iU3cQsa.jpeg" width="360px">  <br>
+<img src="https://i.imgur.com/nZp2lBP.jpeg" width="360px">  <br>
 
 
 [@yubelsrevenge](https://github.com/yubelsrevenge) ALSO EXPOSED!!!!!!!!!!!
