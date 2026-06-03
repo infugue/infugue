@@ -4,6 +4,7 @@
   <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=✧&abbreviated=true" />
 
 <img src="https://i.imgur.com/uXtb4ZW.jpeg" width="360px">  <br>
+<img src="https://i.imgur.com/8hf4BMK.jpeg" width="360px">  <br>
 
 [@zoenaaaa](https://github.com/zoenaaaa) EXPOSED
 
