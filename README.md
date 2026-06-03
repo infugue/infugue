@@ -3,6 +3,9 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=✧&abbreviated=true" />
 
+[新book](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/hibisiI)
+
+
 <img src="https://i.imgur.com/8hf4BMK.jpeg" width="360px">  <br>
 
 [@zoenaaaa](https://github.com/zoenaaaa) EXPOSED
@@ -18,5 +21,3 @@
 
 
 [@yubelsrevenge](https://github.com/yubelsrevenge) ALSO EXPOSED!!!!!!!!!!! [callout](https://rentry.co/yubeIsrevengecaIIout)
-
-[新book](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/hibisiI)
