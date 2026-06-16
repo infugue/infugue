@@ -5,21 +5,6 @@
 
 [新book](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[rentry](https://rentry.co/sxlve)
 
-extra
+<img src="https://i.imgur.com/epwJF17.jpeg" width="360px">  <br>
 
-
-<img src="https://i.imgur.com/8hf4BMK.jpeg" width="360px">  <br>
-
-[@zoenaaaa](https://github.com/zoenaaaa) EXPOSED
-
-
-<img src="https://i.imgur.com/9L1LTqO.jpeg" width="360px">  <br>
-
-[@mutiIator](https://github.com/mutiIator) PT'S BIGGEST SCAMMER
-
-
-<img src="https://i.imgur.com/OfklgO9.jpeg" width="360px">  <br>
-<img src="https://i.imgur.com/RpTpYdU.jpeg" width="360px">  <br>
-
-
-[@yubelsrevenge](https://github.com/yubelsrevenge) ALSO EXPOSED!!!!!!!!!!! [callout](https://rentry.co/yubeIsrevengecaIIout)
+im so effign disappointed bruh who dare full on colorpick my goat [@yubelsrevenge](https://github.com/yubelsrevenge) HALL OF SHAME!!!!!!!!!!!!!
