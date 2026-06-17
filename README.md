@@ -7,4 +7,4 @@
 
 <img src="https://i.imgur.com/epwJF17.jpeg" width="360px">  <br>
 
-im so effign disappointed bruh who dares full on colorpick my goat [@yubelsrevenge](https://github.com/yubelsrevenge) HALL OF SHAME!!!!!!!!!!!!!
+im so effign disappointed bruh why full on colorpick my goat [@yubelsrevenge](https://github.com/yubelsrevenge) HALL OF SHAME!!!!!!!!!!!!!
