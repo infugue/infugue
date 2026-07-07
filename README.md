@@ -7,4 +7,4 @@
 
 <img src="https://i.imgur.com/epwJF17.jpeg" width="360px">  <br>
 
-im so disappointed why colorpick my goat [@yubelsrevenge](https://github.com/yubelsrevenge) HALL OF SHAME!!!!!!!!!!!!!
+im so disappointed why colorpick my goat [@yubelsrevenge](https://github.com/yubelsrevenge)
