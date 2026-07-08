@@ -5,6 +5,4 @@
 
 [新book](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/silbiki)
 
-<img src="https://i.imgur.com/epwJF17.jpeg" width="360px">  <br>
-
-im so disappointed why colorpick my goat [@yubelsrevenge](https://github.com/yubelsrevenge)
+<img src="https://i.imgur.com/Rsg7CiZ.jpeg" width="360px">  <br>
