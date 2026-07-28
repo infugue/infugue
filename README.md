@@ -7,4 +7,4 @@
 
 [atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/silbiki)
 
-#1's [@ponytowners](https://github.com/ponytowners), [@pt-players](https://github.com/pt-players), [@pt-stars](https://github.com/pt-stars), [@title-town](https://github.com/title-town), [@fan-town](https://github.com/fan-town), [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)
+#1's [@ponytowners](https://github.com/ponytowners), [@pt-players](https://github.com/pt-players), [@pt-stars](https://github.com/pt-stars), [@title-town](https://github.com/title-town), [@fan-town](https://github.com/fan-town), [@pt-walk-of-fame](https://github.com/pt-walk-of-fame), [@pt-fashion](https://github.com/pt-fashion)
