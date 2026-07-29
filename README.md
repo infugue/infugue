@@ -5,6 +5,6 @@
 
 <img src="https://i.imgur.com/Rsg7CiZ.jpeg" width="360px">  <br>
 
-[atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/silbiki)
+[atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
 
 #1's [@ponytowners](https://github.com/ponytowners), [@pt-players](https://github.com/pt-players), [@pt-stars](https://github.com/pt-stars), [@title-town](https://github.com/title-town), [@fan-town](https://github.com/fan-town), [@pt-walk-of-fame](https://github.com/pt-walk-of-fame), [@pt-fashion](https://github.com/pt-fashion)
