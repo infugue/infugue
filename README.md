@@ -16,4 +16,4 @@ v
 [pt-nominations](https://github.com/pt-nominations) awesum!
 
 
-<img src="https://i.imgur.com/xmpRVAn.png" width="50px">  <br>
+<img src="https://i.imgur.com/xmpRVAn.png" width="60px">  <br>
