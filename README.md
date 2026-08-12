@@ -1,7 +1,8 @@
 <div align="center">
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=infugue&color=blue&label=✧&abbreviated=true" /
+  <img src="https://komarev.com/ghpvc/?username=infugue&color=blue&label=✧&abbreviated=true" />
+</p>
 
 [atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
 
@@ -13,4 +14,6 @@ v
 
 [@pt-nominations](https://github.com/pt-nominations) awesum!
 
-<img src="https://i.imgur.com/xmpRVAn.png" width="50px">  <br>
+<img src="https://i.imgur.com/xmpRVAn.png" width="50px">
+
+</div>
