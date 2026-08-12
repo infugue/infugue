@@ -1,7 +1,15 @@
 <div align="center">
 
+
+
+
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=infugue&color=blue&label=✧&abbreviated=true" /
+
+
+
+
+  
 
 [atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
 
