@@ -9,6 +9,8 @@ hi!
 
 <img src="https://i.imgur.com/6Xjx8l3.png" width="300px">
 
+art isn't mine :3c
+
 [atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
 
 
