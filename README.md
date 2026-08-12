@@ -5,9 +5,9 @@
   <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=✧&abbreviated=true" />
 </p>
 
-hi! (art isn't mine :3c)
-
 <img src="https://i.imgur.com/6Xjx8l3.png" width="300px">
+
+hi! (art isn't mine :3c)
 
 
 [新book](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
