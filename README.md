@@ -4,7 +4,7 @@
   <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=✧&abbreviated=true" />
 </p>
 
-just wait ill add a really cool pic here soon
+<img src="https://i.imgur.com/htbtMDo.gif" width="350px">
 
 [atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
 
