@@ -5,10 +5,11 @@
   <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=✧&abbreviated=true" />
 </p>
 
-[atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
-
+hi!
 
 <img src="https://i.imgur.com/6Xjx8l3.png" width="300px">
+
+[atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
 
 
 |
