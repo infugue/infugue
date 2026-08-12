@@ -6,7 +6,7 @@
 </p>
 
 
-hi! (art isnt mine :3c)
+HI! (art isn't mine :3c)
 
 
 <img src="https://i.imgur.com/6Xjx8l3.png" width="300px">
