@@ -1,9 +1,9 @@
 <div align="center">
 
+<img src="https://i.imgur.com/Rsg7CiZ.jpeg" width="360px">  <br>
+
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=infugue&color=blue&label=✧&abbreviated=true" /
-
-<img src="https://i.imgur.com/Rsg7CiZ.jpeg" width="360px">  <br>
 
 [atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
 
