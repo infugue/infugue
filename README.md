@@ -25,7 +25,7 @@ HI! (art isn't mine :3c)
 
 —————————————————————————————————————————————
 
-?????? wtf [@raysinet-tea](https://github.com/raysinet-tea)
+?????? [@raysinet-tea](https://github.com/raysinet-tea)
 
 <img src="https://i.imgur.com/hFh4Rdw.jpeg" width="350px">
 
