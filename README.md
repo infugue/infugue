@@ -25,6 +25,6 @@ HI! (art isn't mine :3c)
 
 <img src="https://i.imgur.com/xmpRVAn.png" width="50px">
 
-</div>
-
 <img src="https://i.imgur.com/hFh4Rdw.jpeg" width="360px">
+
+</div>
