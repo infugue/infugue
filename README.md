@@ -11,6 +11,8 @@ HI! (art isn't mine :3c)
 
 <img src="https://i.imgur.com/6Xjx8l3.png" width="300px">
 
+—————————————————————————————————————————————
+
 
 [新book](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
 
@@ -24,8 +26,6 @@ HI! (art isn't mine :3c)
 <img src="https://i.imgur.com/xmpRVAn.png" width="50px">
 
 —————————————————————————————————————————————
-
-Wtf are we on
 
 <img src="https://i.imgur.com/hFh4Rdw.jpeg" width="360px">
 
