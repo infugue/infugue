@@ -15,8 +15,6 @@ HI! (art isn't mine :3c)
 [新book](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
 
 
-—————————————————————————————————————————————
-
 #1's [@ponytowners](https://github.com/ponytowners), [@pt-players](https://github.com/pt-players), [@pt-stars](https://github.com/pt-stars), [@title-town](https://github.com/title-town), [@pt-walk-of-fame](https://github.com/pt-walk-of-fame), [@pt-fashion](https://github.com/pt-fashion), [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) THANK U SO MUCH!!!!
 
 
