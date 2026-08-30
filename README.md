@@ -25,7 +25,7 @@ HI! (art isn't mine :3c)
 
 —————————————————————————————————————————————
 
-Wtf we doing @raysinet-tea
+Wtf are we on
 
 <img src="https://i.imgur.com/hFh4Rdw.jpeg" width="360px">
 
