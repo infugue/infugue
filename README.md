@@ -22,7 +22,10 @@ HI! (art isn't mine :3c)
 
 
 [@pt-nominations](https://github.com/pt-nominations) [@pt-friendships](https://github.com/pt-friendships) YAY!
+</p>
 
+<br>
+<br>
 <img src="https://i.imgur.com/xmpRVAn.png" width="50px">
 </p>
 
