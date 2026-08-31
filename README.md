@@ -38,8 +38,6 @@ HI! (art isn't mine :3c)
 
 <img src="https://i.imgur.com/hFh4Rdw.jpeg" width="350px">
 
-</div>
-
 BRO [@yubelsrevenge](https://github.com/yubelsrevenge)
 
 <img src="https://i.imgur.com/fG9MhUA.jpeg" width="350px">
