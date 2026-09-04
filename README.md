@@ -9,7 +9,7 @@
 HI! (art by me :3c)
 
 
-<img src="https://i.imgur.com/8T07cFQ.jpeg" width="300px">
+<img src="https://i.imgur.com/8T07cFQ.jpeg" width="310px">
 </p>
 
 <br>
