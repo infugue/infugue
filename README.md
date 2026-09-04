@@ -6,10 +6,10 @@
 </p>
 
 
-HI! (art by me :3c)
+HI! (art isn't mine :3c)
 
 
-<img src="https://i.imgur.com/8T07cFQ.jpeg" width="310px">
+<img src="https://i.imgur.com/6Xjx8l3.png" width="310px">
 </p>
 
 <br>
