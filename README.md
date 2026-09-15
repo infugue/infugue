@@ -7,7 +7,7 @@
 
 <img src="https://i.imgur.com/O30tsHI.png" width="300px">
 
-17
+17, below 14 iwc
 
 sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎&nbsp;&nbsp;read [byi](https://rentry.co/sxlve) :3c
 
