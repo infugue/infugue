@@ -11,7 +11,7 @@
 
 w2i afk most of the time
 
-[@soulsilver](https://github.com/souIsiIver)
+[@soulsilver](https://github.com/souIsiIver) is also me
 
 </p>
 
