@@ -7,7 +7,7 @@
 
 <img src="https://i.imgur.com/O30tsHI.png" width="300px">
 
-[ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
+[atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
 
 </p>
 
