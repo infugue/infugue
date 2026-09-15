@@ -2,7 +2,7 @@
 
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=✧&abbreviated=true" />
+  <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=♡&abbreviated=true" />
 </p>
 
 <img src="https://i.imgur.com/O30tsHI.png" width="300px">
