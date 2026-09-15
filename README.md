@@ -5,7 +5,7 @@
   <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=✧&abbreviated=true" />
 </p>
 
-<img src="https://i.imgur.com/O30tsHI.png" width="310px">
+<img src="https://i.imgur.com/O30tsHI.png" width="300px">
 
 [atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
 
@@ -19,27 +19,3 @@
 <br>
 <br>
 <img src="https://i.imgur.com/xmpRVAn.png" width="50px">
-</p>
-
-<br>
-<br>
-
-—————————————————————————————————————————————
-</p>
-
-<br>
-<br>
-
-?????? [@raysinet-tea](https://github.com/raysinet-tea)
-
-<img src="https://i.imgur.com/hFh4Rdw.jpeg" width="350px">
-</p>
-
-<br>
-<br>
-
-BRO [@yubelsrevenge](https://github.com/yubelsrevenge)
-
-<img src="https://i.imgur.com/fG9MhUA.jpeg" width="350px">
-
-</div>
