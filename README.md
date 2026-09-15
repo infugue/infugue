@@ -11,7 +11,7 @@
 
 sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;read [byi](https://rentry.co/sxlve) :3c
 
-[@soulsilver](https://github.com/souIsiIver) is also me ^^
+[@soulsilver](https://github.com/souIsiIver) is also me
 
 </p>
 
