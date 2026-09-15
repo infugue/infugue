@@ -41,5 +41,5 @@
 <br>
 <br>
 
-<img src="https://i.imgur.com/ra3e3rW.gif" width="50px">
-<img src="https://i.imgur.com/hS6l4KY.gif" width="50px">
+<img src="https://i.imgur.com/ra3e3rW.gif" width="80px">
+<img src="https://i.imgur.com/hS6l4KY.gif" width="80px">
