@@ -18,10 +18,10 @@
 
 [@pt-nominations](https://github.com/pt-nominations) [@pt-friendships](https://github.com/pt-friendships) YAY!
 
-</details>
-
 </p>
 
 <br>
 <br>
 <img src="https://i.imgur.com/xmpRVAn.png" width="50px">
+
+</details>
