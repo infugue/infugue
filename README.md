@@ -9,9 +9,9 @@
 
 17‎‎!! c+h! mostly afk
 
-sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;read [byi](https://rentry.co/sxlve) :3c
+sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;read [byi](https://rentry.co/sxlve)
 
-[@soulsilver](https://github.com/souIsiIver) is also me
+[@soulsilver](https://github.com/souIsiIver) is also me :3c
 
 </p>
 
