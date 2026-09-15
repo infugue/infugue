@@ -7,7 +7,7 @@
 
 <img src="https://i.imgur.com/O30tsHI.png" width="300px">
 
-17‎‎!! c+h & mostly afk
+17‎‎!! mostly afk! c+h
 
 sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;read [byi](https://rentry.co/sxlve)
 
