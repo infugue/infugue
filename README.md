@@ -9,8 +9,6 @@
 
 [atabook](https://infugue.atabook.org/)&nbsp;&nbsp;‎ ‎ &nbsp;&nbsp;[byi](https://rentry.co/sxlve)
 
-<img src="https://i.imgur.com/xmpRVAn.png" width="50px">
-
 </p>
 
 <br>
