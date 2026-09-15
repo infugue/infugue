@@ -35,13 +35,6 @@
 <img src="https://i.imgur.com/ra3e3rW.gif" width="120px">
 <img src="https://i.imgur.com/hS6l4KY.gif" width="120px">
 
-</p>
-
-<br>
-<br>
-
-also hi jayjay hi shed hi travis hi ada hi zoena hi doris
-
 </details>
 
 </p>
