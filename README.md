@@ -48,10 +48,10 @@ sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;rea
 
 
 <details>
-<summary>‎‎extra</summary>
+<summary>‎‎ extra</summary>
 
 ?? [@horroryaoi](https://github.com/horroryaoi)
 
-<img src="https://i.imgur.com/KJTDbPF.jpeg" width="350px">
+<img src="https://i.imgur.com/KJTDbPF.jpeg" width="360px">
 
-<img src="https://i.imgur.com/O0IGwon.jpeg" width="350px">
+<img src="https://i.imgur.com/O0IGwon.jpeg" width="360px">
