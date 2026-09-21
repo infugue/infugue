@@ -19,7 +19,7 @@ sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;rea
 <br>
 
 <details>
-<summary>‎misc</summary>
+<summary>‎‎ </summary>
 
 </p>
 
