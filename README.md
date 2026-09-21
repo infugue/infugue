@@ -45,3 +45,12 @@ sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;rea
 
 <br>
 <br>
+
+
+<details>
+<summary>‎‎extra</summary>
+
+?? [@horroryaoi](https://github.com/horroryaoi)
+
+<img src="https://i.imgur.com/KJTDbPF.jpeg" width="150px">
+<img src="https://i.imgur.com/O0IGwon.jpeg" width="150px">
