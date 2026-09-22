@@ -61,9 +61,4 @@ sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;rea
 
 <img src="https://i.imgur.com/O0IGwon.jpeg" width="360px">
 
-</p>
-
-<br>
-<br>
-
 <img src="https://i.imgur.com/PEeMCBG.jpeg" width="360px">
