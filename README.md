@@ -57,13 +57,13 @@ sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;rea
 
 ?? [@horroryaoi](https://github.com/horroryaoi)
 
-<img src="https://i.imgur.com/KJTDbPF.jpeg" width="350px">
+<img src="https://i.imgur.com/KJTDbPF.jpeg" width="340px">
 
-<img src="https://i.imgur.com/O0IGwon.jpeg" width="350px">
+<img src="https://i.imgur.com/O0IGwon.jpeg" width="340px">
 
 MY SQUAD
 
-<img src="https://i.imgur.com/uFwaAEA.png" width="350px">
+<img src="https://i.imgur.com/uFwaAEA.png" width="340px">
 
-<img src="https://i.imgur.com/PEeMCBG.jpeg" width="350px">
+<img src="https://i.imgur.com/PEeMCBG.jpeg" width="340px">
 
