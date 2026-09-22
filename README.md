@@ -66,6 +66,4 @@ sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;rea
 <br>
 <br>
 
-the stuff we do
-
 <img src="https://i.imgur.com/PEeMCBG.jpeg" width="360px">
