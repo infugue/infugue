@@ -7,11 +7,11 @@
 
 <img src="https://i.imgur.com/O30tsHI.png" width="300px">
 
-c+h!! mostly afk
+c+h!! mostly afk!
 
 sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;read [byi](https://rentry.co/sxlve)
 
-[@soulsilver](https://github.com/souIsiIver) is also me!
+[@soulsilver](https://github.com/souIsiIver) is also me
 
 </p>
 
