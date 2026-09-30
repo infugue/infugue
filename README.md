@@ -7,11 +7,6 @@
 
 <img src="https://i.imgur.com/x4oOfCI.png" width="300px">
 
-</p>
-
-<br>
-<br>
-
 c+h!! mostly afk!
 
 sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;read [byi](https://rentry.co/sxlve)
