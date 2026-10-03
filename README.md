@@ -7,7 +7,7 @@
 
 <img src="https://i.imgur.com/rzD4C95.png" width="300px">
 
-c+h!! mostly afk!
+c+h!! mostly afk
 
 sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;read [byi](https://rentry.co/sxlve)
 
@@ -55,7 +55,7 @@ sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;rea
 <br>
 <br>
 
-?? [@horroryaoi](https://github.com/horroryaoi)
+? [@horroryaoi](https://github.com/horroryaoi)
 
 <img src="https://i.imgur.com/KJTDbPF.jpeg" width="340px">
 
