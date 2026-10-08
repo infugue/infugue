@@ -9,7 +9,7 @@
 
 c+h!! mostly afk
 
-sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;read [byi](https://rentry.co/sxlve)
+sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;read [byi](https://fluffle.cc/hibisil)
 
 [@soulsilver](https://github.com/souIsiIver) is also me!
 
