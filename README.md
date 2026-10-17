@@ -36,8 +36,8 @@ sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;rea
 <br>
 <br>
 
-<img src="https://i.imgur.com/ra3e3rW.gif" width="110px">
-<img src="https://i.imgur.com/hS6l4KY.gif" width="110px">
+<img src="https://i.imgur.com/ra3e3rW.gif" width="120px">
+<img src="https://i.imgur.com/hS6l4KY.gif" width="120px">
 
 </details>
 
