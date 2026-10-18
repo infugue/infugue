@@ -5,7 +5,7 @@
   <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=♡&abbreviated=true" />
 </p>
 
-<img src="https://i.imgur.com/rzD4C95.png" width="300px">
+<img src="https://i.imgur.com/9qyvNOi.gif" width="300px">
 
 c+h!! mostly afk
 
