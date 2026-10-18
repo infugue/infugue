@@ -57,9 +57,9 @@ sign my [ata](https://infugue.atabook.org/)&nbsp;&nbsp;‎☆ ‎&nbsp;&nbsp;rea
 
 ?? [@horroryaoi](https://github.com/horroryaoi)
 
-<img src="https://i.imgur.com/KJTDbPF.jpeg" width="310px">
+<img src="https://i.imgur.com/KJTDbPF.jpeg" width="330px">
 
-<img src="https://i.imgur.com/O0IGwon.jpeg" width="310px">
+<img src="https://i.imgur.com/O0IGwon.jpeg" width="330px">
 
 MY SQUAD
 
