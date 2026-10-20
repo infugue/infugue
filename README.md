@@ -9,7 +9,7 @@
 
 c+h!! mostly afk
 
-[atabook](https://infugue.atabook.org/)&nbsp;&nbsp;☆ ‎&nbsp;&nbsp;read [byi](https://fluffle.cc/hibisil)&nbsp;&nbsp;‎𖹭&nbsp;&nbsp;‎[trio](https://fluffle.cc/johtrio)
+[新book](https://infugue.atabook.org/)&nbsp;&nbsp;☆ ‎&nbsp;&nbsp;read [byi](https://fluffle.cc/hibisil)&nbsp;&nbsp;‎𖹭&nbsp;&nbsp;‎[trio](https://fluffle.cc/johtrio)
 
 [@soulsilver](https://github.com/souIsiIver) is me!
 
