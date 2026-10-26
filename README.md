@@ -19,7 +19,7 @@ c + h!! mostly afk
 <br>
 
 <details>
-<summary>‎‎ misc</summary>
+<summary>‎‎ pt stuff</summary>
 
 </p>
 
