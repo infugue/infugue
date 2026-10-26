@@ -64,6 +64,3 @@ c + h!! mostly afk
 MY SQUAD
 
 <img src="https://i.imgur.com/uFwaAEA.png" width="340px">
-
-<img src="https://i.imgur.com/PEeMCBG.jpeg" width="340px">
-
