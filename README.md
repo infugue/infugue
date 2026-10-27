@@ -19,7 +19,7 @@ c + h!! mostly afk
 <br>
 
 <details>
-<summary>‎‎ awards stuff</summary>
+<summary>‎‎ awards </summary>
 
 </p>
 
