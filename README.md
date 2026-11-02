@@ -7,7 +7,7 @@
 
 <img src="https://i.imgur.com/FcUUuMZ.gif" width="300px"> 
 
-c + h!! mostly afk
+
 
 [新book](https://infugue.atabook.org/)&nbsp;&nbsp; ‎&nbsp;&nbsp;[byi](https://fluffle.cc/hibisil)&nbsp;&nbsp;‎𖹭&nbsp;&nbsp;‎[shared](https://fluffle.cc/johtrio)
 
