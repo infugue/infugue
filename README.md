@@ -5,7 +5,7 @@
   <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=♡&abbreviated=true" />
 </p>
 
-<img src="https://i.imgur.com/PjGBHBo.png" width="300px"> 
+<img src="https://i.imgur.com/PjGBHBo.png" width="310px"> 
 
 
 
