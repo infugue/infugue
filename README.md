@@ -2,7 +2,7 @@
 
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=♡&abbreviated=true" />
+  <img src="https://komarev.com/ghpvc/?username=infugue&color=red&label=✮&abbreviated=true" />
 </p>
 
 <img src="https://i.imgur.com/PjGBHBo.png" width="310px"> 
@@ -35,9 +35,6 @@
 
 <br>
 <br>
-
-<img src="https://i.imgur.com/ra3e3rW.gif" width="120px">
-<img src="https://i.imgur.com/hS6l4KY.gif" width="120px">
 
 </details>
 
