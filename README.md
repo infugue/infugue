@@ -11,7 +11,8 @@
 
 [新book](https://infugue.atabook.org/)&nbsp;&nbsp; ‎&nbsp;&nbsp;[fluffle](https://fluffle.cc/hibisil)&nbsp;&nbsp;‎𖹭&nbsp;&nbsp;‎[shared](https://fluffle.cc/johtrio)&nbsp;&nbsp;‎ [shared 2](https://fluffle.cc/compete)
 
-read fluffle byi, [@soulsilver](https://github.com/souIsiIver)
+read fluffle byi
+ [@soulsilver](https://github.com/souIsiIver)
 
 </p>
 
