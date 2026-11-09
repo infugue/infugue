@@ -36,8 +36,6 @@
 <br>
 <br>
 
-<img src="https://i.imgur.com/ra3e3rW.gif" width="130px">
-<img src="https://i.imgur.com/hS6l4KY.gif" width="130px">
 
 </details>
 
